@@ -1,4 +1,3 @@
 ### Hi there 👋
 
-- 📫 How to reach me: jjoaovvictorneves@gmail.com
-
+- Contact me, if you want: victorsousa8@duck.com
